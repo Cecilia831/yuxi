@@ -1,4 +1,4 @@
-## Welcome to Xi Yu's Webpage
+## Xi Yu
 
 ### [My google scholar](https://scholar.google.com/citations?user=i6zSixMAAAAJ&hl=en)
 
